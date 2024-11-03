@@ -1,4 +1,4 @@
-## Hi there 👋 RBN **"La nature au service de votre élégance"**
+## Hi👋 RBN **"La nature au service de votre élégance"**
 
 
 **Refinement Beauté Naturel (RBN)** est une marque dédiée à la mise en valeur de la beauté authentique à travers des soins naturels et raffinés. Fondée sur l'idée que la nature est la source première de l'élégance, RBN propose une gamme de produits conçus pour sublimer la beauté intérieure et extérieure de chacun, tout en respectant l’environnement.
